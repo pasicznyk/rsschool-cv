@@ -1,5 +1,5 @@
 # **ARTEM PASICHNYK**
-![photo](/images/AP.png)  
+![photo](/images/photo.png)  
 
 > ### ABOUT MYSELF :  
 
